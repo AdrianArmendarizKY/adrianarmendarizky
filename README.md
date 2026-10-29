@@ -3,11 +3,11 @@
 
 - 🔭 I’m currently working on **data and RAG pipelines for small businesses looking to modernize and enhanced their day-to-day tools.**
 
-- 📫 How to reach me **adrianarmendariz.ky@gmail.com**
+- 📫 How to reach me: **adrianarmendariz.ky@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1EmgX69E479j5Xy7xE59B4fuRFlkmg56f/view?usp=sharing](https://drive.google.com/file/d/1EmgX69E479j5Xy7xE59B4fuRFlkmg56f/view?usp=sharing)
+- 📄 Know about my experiences: [https://drive.google.com/file/d/1EmgX69E479j5Xy7xE59B4fuRFlkmg56f/view?usp=sharing](https://drive.google.com/file/d/1EmgX69E479j5Xy7xE59B4fuRFlkmg56f/view?usp=sharing)
 
-- ⚡ Fun fact **I've produced and DJ'd electronic dance music for the last 15 years!**
+- ⚡ Fun fact: **I've produced and DJ'd electronic dance music for the last 15 years!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
