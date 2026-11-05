@@ -5,7 +5,7 @@
 
 - 📫 How to reach me: **adrianarmendariz.ky@gmail.com**
 
-- 📄 Know about my experiences: [https://drive.google.com/file/d/1EmgX69E479j5Xy7xE59B4fuRFlkmg56f/view?usp=sharing](https://drive.google.com/file/d/1EmgX69E479j5Xy7xE59B4fuRFlkmg56f/view?usp=sharing)
+- 📄 Know about my experiences: https://drive.google.com/file/d/1WhZH_QA94EtseBdeLNx-5iLnhbYKj6-8/view?usp=sharing
 
 - ⚡ Fun fact: **I've produced and DJ'd electronic dance music for the last 15 years!**
 
